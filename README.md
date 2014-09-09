@@ -1,1 +1,1 @@
-Visit http://nicoleyimessier.com/helmet for more information
+Visit http://nicoleyimessier.com/helmet for more information.
